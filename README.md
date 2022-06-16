@@ -1,1 +1,1 @@
-Step 1 of mock up
+Step 1 of mockup
